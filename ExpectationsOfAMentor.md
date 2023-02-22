@@ -37,3 +37,5 @@ help.  Please choose to be a leader worthy of our emulation.  Please choose to
 be a mentor who we choose to seek out.  If your only protégés are the ones your
 chain of command has assigned to you, odds are this message was written for
 you.
+
+[Original Post](https://seanheritage.com/blog/expectations-of-a-mentor/)

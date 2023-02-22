@@ -51,3 +51,6 @@ to help me track interests across many titles is #GoodReads.
 
 
 #howtoreadabook 
+
+[Original
+Post](https://www.linkedin.com/posts/zaki-rucker_kindle-readwise-readwisereader-activity-7030984026714734593-ive3?utm_source=share&utm_medium=member_desktop)
