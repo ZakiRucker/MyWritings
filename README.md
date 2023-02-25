@@ -1,2 +1,2 @@
 # MyWritings
-Just a collection of thoughts recorded.
+A collection of thoughts recorded.
